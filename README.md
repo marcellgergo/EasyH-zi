@@ -1,1 +1,1 @@
-# EasyH-zi
+# EasyHazi
